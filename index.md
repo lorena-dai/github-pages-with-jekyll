@@ -1,3 +1,2 @@
-# Welcome to my blog
+# Catalyzing revolutionary biotechnologies
 
-I'm glad you are here. I plan to talk about ...
